@@ -16,14 +16,14 @@ When I am free, you can find Me watching old cricket match highlights or going o
 
 - 😄 Pronouns: He / Him
 
-- ⚡ Fun fact: Can watch a Test match in Australian time without feeling sleepy and getting bored. 
+- ⚡ Fun fact: Can watch a Test match in Australian time without feeling sleepy or getting bored. 
 
 --------------
 
 - 📫 How to reach me: 
   -  To start a conversation, reach Me out @avi_my_name on [Twitter](https://twitter.com/avi_my_name) & [Instagram](https://instagram.com/avi_my_name).
   -  To know what I am currently doing. Check Me out on [LinkedIn](https://www.linkedin.com/in/avijit-chakraborty/).
-  -  Ocassionally, I try to write as @avijit.chakraborty on [Medium](https://medium.com/@avijit.chakraborty).
+  -  Occasionally, I try to write as @avijit.chakraborty on [Medium](https://medium.com/@avijit.chakraborty).
 
 <!-- - 🤔 I’m looking for help with ... -->
 
